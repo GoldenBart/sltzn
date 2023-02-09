@@ -1,2 +1,0 @@
-# sltzn
-do szkoły
